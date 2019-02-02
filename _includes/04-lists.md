@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Sushi
+- Sleep
+  - Adequate amounts preferred
+- Good grades!
+- Popcorn
+- Not going to work
+- Computer science class
