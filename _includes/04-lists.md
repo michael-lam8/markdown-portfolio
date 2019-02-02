@@ -1,0 +1,7 @@
+- Sushi
+- Sleep
+  - Adequate amounts preferred
+- Good grades!
+- Popcorn
+- Not going to work
+- Computer science class
